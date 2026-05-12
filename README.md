@@ -29,7 +29,7 @@ Meu objetivo √© usar este perfil para organizar meus estudos, criar projetos pr√
 
 ## Contato
 
-- LinkedIn: [Coloque aqui seu LinkedIn]
+- LinkedIn: [(https://www.linkedin.com/in/ricardosiminesscopim/)]
 - E-mail: [Coloque aqui seu e-mail]
 
 ---
